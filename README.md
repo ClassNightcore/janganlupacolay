@@ -1,2 +1,0 @@
-# janganlupacolay
-Jangan lupa coli
